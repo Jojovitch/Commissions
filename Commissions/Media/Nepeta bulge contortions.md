@@ -9,6 +9,15 @@ Since i don't think you can see it in the shot, there are two little bumps near 
 
 These things are traditionally slimy as all get out. and this one is meant to be a bit of a self facial (before and after) Lotsa goo in this pic.
 ## Referances:
+#### Pose Referances:
+![[Nepeta bulge contortions 1.png]]
+
+![[Nepeta bulge contortions 2.png]]
+
+#### Clip Studio File:
+
+![[Nepeta bulge contortions.clip]]
+
 
 #### Character Referances:
 ![[2e7ec83b49a5ce5137430422c0018292d4729153a1ca8a77fdb7473816b81060.png]]
@@ -17,10 +26,3 @@ These things are traditionally slimy as all get out. and this one is meant to be
 ![[bee85f37c0e152e22df37c8ae113ac0ffb15e8fcfbe001e0ae55d320f03bb7c8.png]]
 ![[147f84129ef648170556415000e095a2e728acc3376c88855d0f9291eeb48ab6.png]]
 
-#### Pose Referances:
-![[Nepeta bulge contortions 1.png]]
-
-![[Nepeta bulge contortions 2.png]]
-
-#### Clip Studio File:
-![[Nepeta bulge contortions.clip]]
