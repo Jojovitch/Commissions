@@ -8,7 +8,7 @@ Solo masturbation pic, laying on back in a pile of clothes/beanbag, whichever is
 2.  These things are traditionally slimy as all get out. and this one is meant to be a bit of a self facial (before and after) Lotsa goo in this pic.
 3. Model mostly based off the first character ref, but i included some extra so you got options
 ######  Image
-![[SPOILER_image.webp]]
+![|100][SPOILER_image.webp]
 
 ##### Alts:
 1. Before shot: Slimy "bulge", slightly dripping. Small hearts in eyes, distracted and fantasizing vibe. Biting upper lip and drooling a bit.
