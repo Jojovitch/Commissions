@@ -1,0 +1,1 @@
+TL;DR, this is a simple .Bat that uploads the content to github for hosting
