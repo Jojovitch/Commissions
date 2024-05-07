@@ -28,3 +28,5 @@ Simple ecchi pic of my character sitting in her room at her desk. Not explicitly
  1. She's always at least half mast even when not aroused. [[Miya Lounging#Notes|Note #3]]
  2. Not sure if you haven't got to it yet, or if you missed the comment about it but her breasts are significantly bigger [[Miya Lounging#Notes|Note #2]]
  3. Glasses? Not sure if they're present or not since the sketch is so rough, but i'll link the note anyways [[Miya Lounging#Notes|Note #1]]
+
+![[Miya lounging quick edit.png]]
