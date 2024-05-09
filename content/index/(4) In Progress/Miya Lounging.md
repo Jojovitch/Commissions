@@ -32,3 +32,5 @@ Simple ecchi pic of my character sitting in her room at her desk. Not explicitly
 ![[Miyako_Jo.jpg]]
 ###### Progress notes:
  1.Simple reminder to add the mons pubis pressing base of the shaft during color phase
+#### Update #3:
+![[Miyako_Jo_1.jpg]]
