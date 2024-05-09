@@ -1,8 +1,12 @@
-## Details:
+
+# Overview
+Status: [[In progress]]
+Artist: [[OozutsuCannon]]
+### Description:
+###### Characters:
+Miyako Jo
+###### Scene:
 Simple ecchi pic of my character sitting in her room at her desk. Not explicitly lewd, but she doesn't wear bottoms at home so maybe something is visible.
-
-
-
 ###### Notes:
 1. Her glasses are fake, for aesthetics only. Should still be wearing them but they cause no lensing effect if its relevant
 2.  CSPs models don't allow for accurate breast size, follow the ref sheet for that part

@@ -17,3 +17,6 @@ Welcome, this is my little organizer for commissions and ideas, a simple markdow
 # Common referances:
 
 [[Miyako Jo]]
+
+# Artists:
+[[OozutsuCannon]]
