@@ -1,4 +1,4 @@
-# Overview
+# Overview:
 Status: 
 Artist: 
 ### Description:
@@ -25,7 +25,7 @@ Artist:
 #### Extra Referances:
 
 
-# Progress Pics
+# Progress Pics:
 #### Progress Pic #1
-# Result
+# Result:
 

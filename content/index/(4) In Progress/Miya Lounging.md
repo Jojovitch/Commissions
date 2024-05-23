@@ -25,7 +25,7 @@ Simple ecchi pic of my character sitting in her room at her desk. Not explicitly
 ![[Miyako Jo]]
 ![[Futa Type 1 anatomy ref.png]]
 
-#### Progress pics:
+# Progress Pics
 #### Update #1:
 ![[Miyako_Jo.webp]]
 ###### Progress notes:
@@ -38,3 +38,10 @@ Simple ecchi pic of my character sitting in her room at her desk. Not explicitly
  1.Simple reminder to add the mons pubis pressing base of the shaft during color phase
 #### Update #3:
 ![[Miyako_Jo_1.jpg]]
+# Result:
+###### Base:
+![[Miyako_Jo.png]]
+###### Black stockings:
+![[Miyako_Jo_B.png]]
+###### White Stockings:
+![[Miyako_Jo_W.png]]
