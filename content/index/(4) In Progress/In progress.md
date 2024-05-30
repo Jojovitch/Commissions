@@ -1,4 +1,4 @@
 Oozutsu:
 [[Nepeta bulge contortions]]
-[[Miya Lounging]]
+[[Miya mirror]]
 

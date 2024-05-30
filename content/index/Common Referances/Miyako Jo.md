@@ -6,4 +6,4 @@
 
 ![[outside.png]]
 
-![[shy naked.png]]
+![[shy naked.png]]![[Room_Design_no_secret.png]]

@@ -5,7 +5,7 @@
 | Jan   | Null                                        | Null                                 |                                                    |
 | Feb   | Null                                        | [[Melodii lewd headphones\|Melodii]] |                                                    |
 | Mar   | Null                                        | [[Miya Lounging\|Miya]]              | [[Nepeta bulge contortions\|Nepeta]]               |
-| April | Null                                        |                                      | [[Miya mirror\|←]]&[[Nepeta bulge contortions\|^]] |
+| April | Null                                        | [[Miya mirror\|Miya2]]               | [[Miya mirror\|←]]&[[Nepeta bulge contortions\|^]] |
 | May   | Null                                        |                                      |                                                    |
 | June  | Null                                        |                                      | N/A                                                |
 | July  | Null                                        |                                      | N/A                                                |
