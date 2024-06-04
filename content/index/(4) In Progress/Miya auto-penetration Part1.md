@@ -6,6 +6,7 @@ Artist: [[Yaya]]
 Miya
 ###### Scene:
 Part 1 of [[Miya auto-penetration Part2]]
+
 After a particularly long night, Miya managed to sleep through her alarm. Being so late for class, she neglects to relieve herself as normal. Barely managing to get her spats on to conceal the erection.
 
 Normally this would just mean a particularly fidgety day of class's. But as fate would have it, today was swim class.
