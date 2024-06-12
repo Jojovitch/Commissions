@@ -32,5 +32,6 @@ Note: Part 2 is the relevant folder
 
 # Progress Pics:
 #### Progress Pic #1
+![[miya_auto_penetration_p2.jpg]]
 # Result:
 
