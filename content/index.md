@@ -13,10 +13,13 @@ Welcome, this is my little organizer for commissions and ideas, a simple markdow
 [[Complete]] - Fully complete commissions/requests
 
 ---
-
 # Common referances:
 
 [[Miyako Jo]]
 
 # Artists:
 [[OozutsuCannon]]
+
+---
+# Git Host:
+https://jojovitch.github.io/Commissions/
