@@ -53,5 +53,7 @@ The towel lays unused on the bed end chest.
 
 # Progress Pics:
 #### Progress Pic #1
+![[Pasted image 20240916142136.png]]
+![[Pasted image 20240916142201.png]]
 # Result:
 
