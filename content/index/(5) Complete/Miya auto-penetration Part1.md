@@ -1,5 +1,5 @@
 # Overview:
-Status: [[Complete]]]
+Status: [[Complete]]
 Artist: [[Yaya]]
 ### Description:
 ###### Characters:
